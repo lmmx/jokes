@@ -1,2 +1,2 @@
-**Is WordNet Conscious?** We Ask Our Thought Leaders
-The power of kanban compels you!
+1. **Is WordNet Conscious?** We Ask Our Thought Leaders
+1. The power of kanban compels you!
